@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @MrP534
+- 👀 I’m interested in everything.
+- 🌱 I’m currently learning bioinformatics.
+- 📫 How to reach me ...Insta @mr.p534
